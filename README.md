@@ -9,3 +9,4 @@ but please dont use this code without proper use and dont get it banned!!!
 I'm not responsible if you get banned and you can't ban me.
 
 Coding by gliz!!! (from school cheats)
+# bye😁
